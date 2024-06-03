@@ -1,0 +1,1 @@
+# Dinamicka-aplikacija
